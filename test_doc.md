@@ -1,4 +1,4 @@
-I wrote this on the web
+I wrote this on the computer
 
 Sup sup.
 
